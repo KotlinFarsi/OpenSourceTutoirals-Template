@@ -11,4 +11,4 @@ some details
 
 ## How to be Writer on KotlinFarsi
 
-for being a writer or a teacher in KotlinFarsi website just ask me on twitter or telegram, and we will be happy to join our community
+for being a writer or a teacher in KotlinFarsi website just ask me on twitter or telegram, and we will be happy to join our community.
